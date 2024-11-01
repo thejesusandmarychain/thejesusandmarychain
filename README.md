@@ -1,14 +1,9 @@
- read [jazzys strawpage . ✟ 𓂂 ♡](https://straw.page/draw?bio=jazmine777)  & [𐂯⠀. co ⠀ / ⠀jazmine777 ⠀!!](https://rentry.co/jazmine777)
 
-hihi !! im jazzy (jazmine) or sunday :3 
+![](https://64.media.tumblr.com/9bbe7f1ebbff32bff9acf7af3f1d223c/0b9606617aeb2ad4-f5/s400x600/ca42aad319e6a9fe18ad940caebf73aa4d0f24b0.gifv) [strawpage](https://jazsberrys.straw.page/) [rentry](https://rentry.co/jazzyarataka)
 
+haiii im jazmine!!! 4teen & cisfem & bisexual & she/her! int + c&h + w2i ect !!
 
-my prns are she her only and im 14
-
-cisfem + bisexual & Artist 
-
-![](https://64.media.tumblr.com/ec7a77fa4566ed9811d2cf87fd77ae32/13efa5f727578770-b2/s100x200/6bfe3c250a4a35dfdaac9564f74cc14b195a2587.gifv)
-
-pt — int + c+ch ect always ok!!! go ahead dude. i don't really have a dni for pt just dont chat to me if ur well weird or mean. MY FANDOMS ARE IN MY LINKS !!! ^_^ jimmmy x curly ppl must be taking the piss like i dont like u
-
-anywayssysss .. my discord is freecakesforeverycreature 
+![](https://64.media.tumblr.com/fce258d13c75c82dc7fd469e6fa62736/566098ef70fac76c-88/s100x200/229cba6ce9f447aed35340901f72620d89275d22.gifv) ![](https://64.media.tumblr.com/8b59c4162745d44a86e42b529ee6f194/4b1a610bfdc8849e-0d/s100x200/9fa21a2a18f9c3a20d161de0558c35646ff814a4.gifv) ![](https://64.media.tumblr.com/5006b654290aba2a08871b5fb046dbab/13efa5f727578770-69/s100x200/d8f663485952a17f6c3415b4974eb6251f8a2441.gifv) ![](https://64.media.tumblr.com/504180a4ca58935327e22f29918eecfd/a0b5c62a64733241-ec/s100x200/bb6f93b7cbe1b9c088989705ab0b73d801998ddf.pnj) ![](https://64.media.tumblr.com/5a959addb826b67b09c3143fd36496d6/2789c352317c8fac-df/s100x200/160f2ec427a326a8f542de8415923b869e9ebbbc.gifv) ![](https://64.media.tumblr.com/56d4f03d9b8ebc336c3ec1b95e7e0672/5e5d02f1f6821b09-16/s250x400/942daaa2574161ea80fd826a45a63680d322040a.gifv) ![](https://64.media.tumblr.com/ec7a77fa4566ed9811d2cf87fd77ae32/13efa5f727578770-b2/s100x200/6bfe3c250a4a35dfdaac9564f74cc14b195a2587.gifv) ![](https://64.media.tumblr.com/43a52910edb50c8d1d3a5e3b93ac1798/50e498425eab268f-53/s100x200/65fdb07e17f3776b39e01d1e62b5dc9fab014b3b.jpg) ![](https://64.media.tumblr.com/0bd078b0ca6c51b129f7a13048c083af/50e498425eab268f-e3/s100x200/a4afdb3a60150503fb390b396502b1b12ba1c471.jpg)
+![]([https://64.media.tumblr.com/8be44c9028193303f04377c29e23bbd9/ac7e1ac2b0819aed-83/s540x810/cf98dba4e4f426b0a3353a2c4d921ee8c6180215.gifv)
+freecakesforeverycreature on discord ^_^ addme now
+![](https://64.media.tumblr.com/376970a5a8b3df9003cba4eb5ef7e09a/36ffefa19d9448ca-c0/s1280x1920/c3230b7de7bc9bf9ccf26afba99d7d09f1802f48.gifv)
